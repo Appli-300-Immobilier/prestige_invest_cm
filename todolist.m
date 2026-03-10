@@ -6,7 +6,7 @@
 - **Address/Contact:** 
   - Immo Auto Plus est une entreprise qui fait dans la location des maisons et appartements,vente de maisons et terrains,Location et vente de voitures.
   - 
-  - Page � Immobilier
+  - Page é Immobilier
   - 
   - douala ngodi immeuble sapeur porte 208, Douala, Cameroon
   - 
